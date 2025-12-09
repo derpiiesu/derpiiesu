@@ -19,7 +19,7 @@ Here's a list of some of my favorite interests cuz im a big fukin nerd and like 
 
 - Deltarune/Undertale
 - Homestuck *(sorry)*
-- The Peronsa Series
+- The Persona Series
 - One Piece
 - Fullmetal Alchemist Brotherhood
 - The Binding of Isaac
