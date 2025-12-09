@@ -29,7 +29,7 @@ Here's a list of some of my favorite interests cuz im a big fukin nerd and like 
 - Ace Attorney
 - Houseki no Kuni
 - Fate Stay Night 
-- Cinema [not a big letterboxd user but here's mine if u wanna check it out!](https://media.tenor.com/wjpwB5zggAMAAAAi/sans.gif)
+- Cinema, [not a big letterboxd user but here's mine if u wanna check it out!](https://media.tenor.com/wjpwB5zggAMAAAAi/sans.gif)
 - ...and a bunch more, honestly! just dont wanna make this longer than it already is :p
 
 thanks for checking in teehe :> 
